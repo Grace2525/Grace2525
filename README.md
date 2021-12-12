@@ -6,6 +6,6 @@
 
 **Working On CSP**
 
-联系方式📫 ：洛谷私信（Grace25）
+联系方式📫 ：微信（StarDreamLight）,QQ（306255213）
 
 又是被大佬吊打一天呀(-v-
